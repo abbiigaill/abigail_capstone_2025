@@ -17,7 +17,7 @@ Tennessee Trends
 
 Who they are
 
-Hpw we can help
+How we can help
 
 Conclusion
 
